@@ -4,4 +4,4 @@ How to use:
 Open your minecraft resource pack folder and put the file faithful.zip into the folder. After the extraction open "resource packs and select the faithful texture pack".
 The purpose of this if schools have blocked all the possible download links.
 (WORKS FOR CRACKED AND PREMIUM) 
-![alt text](http://https://i1.wp.com/minecraftsix.com/wp-content/uploads/2014/09/faithful-32x32-4.jpg?resize=696%2C435/to/img.png)
+![image](https://user-images.githubusercontent.com/97750682/149552601-2643fa6b-a507-4702-9ec6-a46b4d1db2cf.png)
